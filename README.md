@@ -1,1 +1,1 @@
-Wow Alx program is great
+Wow Alx program is wonderful
